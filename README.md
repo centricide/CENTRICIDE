@@ -1,6 +1,6 @@
 ## RODYA / PLUTO .ᐣ PONY TOWN INFO
 
-![image](https://github.com/usagj/usagj/assets/162927497/1efa2ca9-9579-4919-8ecd-d3841e4cf899)
+![image](https://64.media.tumblr.com/1a1cdd125d52d08ee33f2a9106cea126/tumblr_ohkns63pMp1uerrt0o3_540.gif)
 
 ### ***DNI*** ++  
 basic [c](https://dni-criteria.carrd.co)riteria, the same as always. i am pretty tolerant of a lot of things but if you make me lose my patience or are just that annoying, i won't hesitate to block! **MAJOR NONO's**: sexualizing me or my friends that i sit near, if you are a minor and you're on the 18+ server for foul purposes (hope you get banned respectfully), if youre finicky about doubles i don't care just block me
@@ -11,7 +11,7 @@ Ponies within the same [f](/rodja)andoms as me!! feel free to cuddle/boop/hide w
 ### **REMINDERS** ++ 
 i may cuddle with my friends but it doesn't *always* necessarily mean that i ship the characters or that i am in the same fandom, be sure to check my list of fandoms!
 
-![image](https://github.com/usagj/usagj/assets/162927497/db16cbf7-4824-4cb8-a5e8-21dae5027bb2)
+![image](https://78.media.tumblr.com/61faa55fdebb0bf5838b38923e97bbf9/tumblr_ohivxzydc51uerrt0o2_1280.gif)
 
 
 
