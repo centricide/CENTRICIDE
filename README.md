@@ -9,7 +9,7 @@ basic [c](https://dni-criteria.carrd.co)riteria, the same as always. i am pretty
 Ponies within the same [f](https://rentry.co/rodja)andoms as me!! feel free to cuddle/boop/hide with my avi! i'm typically slow with replies, sorry in advance!! if it's urgent please whisper as i might be offtab!! crowns are always welcomed and i typically reply with a heart in case that makes you uncomfy! 
 
 ### **REMINDERS** ++ 
-i may cuddle with my friends but it doesn't *always* necessarily mean that i ship the characters or that i am in the same fandom, be sure to check my list of fandoms!
+i may cuddle with my friends but it doesn't *always* necessarily mean that i ship the characters or that i am in the same fandom, be sure to check my list of fandoms! ***ALSO*** i don't do rp and i never take that stuff seriously! if you just start roleplaying out of nowhere, imma not reciprocate like at all ..
 
 ![image](https://78.media.tumblr.com/61faa55fdebb0bf5838b38923e97bbf9/tumblr_ohivxzydc51uerrt0o2_1280.gif)
 
