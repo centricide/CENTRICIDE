@@ -13,6 +13,13 @@ i may cuddle with my friends but it doesn't *always* necessarily mean that i shi
 if you just start roleplaying out of nowhere, imma not reciprocate like at all ..
 **regarding skin copying/taking insp**: imitation is a form of flattery. idc if you copy my skins or takes inspo because this is a silly fun pony game :) if my skins are worth copying then it must mean i'm playing this game right lmao
 
+#### STATUS KEY ⭐️
+
+🟢 ﹕ walking around / actively chatting 
+🌙 ﹕ working on skins, might not see ur message for a bit
+⛔️ ﹕ low energy, whispers encouraged
+ᶻ 𝗓 𐰁  ﹕ offtab for a moment/checking in and out
+
 ![image](https://78.media.tumblr.com/61faa55fdebb0bf5838b38923e97bbf9/tumblr_ohivxzydc51uerrt0o2_1280.gif)
 
 
