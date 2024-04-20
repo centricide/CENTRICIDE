@@ -1,4 +1,4 @@
-## RODYA / PLUTO .ᐣ PONY TOWN INFO
+## PONY TOWN INFO
 
 ![image](https://64.media.tumblr.com/1a1cdd125d52d08ee33f2a9106cea126/tumblr_ohkns63pMp1uerrt0o3_540.gif)
 
