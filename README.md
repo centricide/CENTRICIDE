@@ -1,4 +1,11 @@
-## PONY TOWN INFO
+## PONY TOWN INFO 
+
+#### STATUS KEY ⭐️
+
+- 🟢 ﹕ walking around / actively chatting
+- 🌙 ﹕ working on skins, might not see ur message for a bit
+- ⛔️ ﹕ low energy, slow replies, whispers highly encouraged
+- ᶻ 𝗓 𐰁  ﹕ offtab for a moment/checking in and out/studying!
 
 ![image](https://64.media.tumblr.com/1a1cdd125d52d08ee33f2a9106cea126/tumblr_ohkns63pMp1uerrt0o3_540.gif)
 
@@ -15,13 +22,6 @@
 - ***ALSO*** i don't do rp and i never take that stuff seriously! 
 if you just start roleplaying out of nowhere, imma act goofy or not reciprocate like at all ..
 - **regarding skin copying/taking insp**: imitation is a form of flattery. idc if you copy my skins or takes inspo because this is a silly fun pony game :) if my skins are worth copying then it must mean i'm playing this game right lmaooo
-
-#### STATUS KEY ⭐️
-
-- 🟢 ﹕ walking around / actively chatting
-- 🌙 ﹕ working on skins, might not see ur message for a bit
-- ⛔️ ﹕ low energy, slow replies, whispers highly encouraged
-- ᶻ 𝗓 𐰁  ﹕ offtab for a moment/checking in and out/studying!
 
 ![image](https://78.media.tumblr.com/61faa55fdebb0bf5838b38923e97bbf9/tumblr_ohivxzydc51uerrt0o2_1280.gif)
 
