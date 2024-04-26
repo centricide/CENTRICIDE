@@ -12,10 +12,11 @@
 ### ***DNI*** ++  
 - basic [c](https://dni-criteria.carrd.co)riteria, the same as always. i am pretty tolerant of a lot of things but if you make me lose my patience or are just that annoying, i won't hesitate to block/hide!
 - **MAJOR NONO's**: sexualizing me or my friends that i sit near, if you are a minor and you're on the 18+ server (hope you get your account banned! /silly), if youre finicky about doubles i don't care just block me.
+- 🚫 I DONT ACCEPT FRIEND REQUESTS ON SAFE SERVER !! 🚫
 
 ### **INT** ++ 
 - Ponies within the same [f](https://rentry.co/thoughtcrimes)andoms as me!! feel free to cuddle/boop/hide with my avi! i'm typically slow with replies, sorry in advance!! 
-- if it's urgent please whisper as i might be offtab!! crowns are always welcomed and i typically reply with a heart in case that makes you uncomfy! 
+- if it's urgent please whisper as i might be offtab!! crowns are always welcomed and i typically reply with a heart in case that makes you uncomfy!
 
 ### **REMINDERS** ++ 
 - i may cuddle with my friends but it doesn't *always* necessarily mean that i ship the characters or that i am in the same fandom!
