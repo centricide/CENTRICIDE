@@ -18,7 +18,7 @@
 - Ponies within the same [f](https://rentry.co/thoughtcrimes)andoms as me!! feel free to cuddle/boop/hide with my avi! i'm typically slow with replies, sorry in advance!! 
 - if it's urgent please whisper as i might be offtab!! crowns are always welcomed and i typically reply with a heart in case that makes you uncomfy!
 
-### **REMINDERS** ++ 
+### **BYI** ++ 
 - i may cuddle with my friends but it doesn't *always* necessarily mean that i ship the characters or that i am in the same fandom!
 - ***ALSO*** i don't do rp and i never take that stuff seriously! 
 if you just start roleplaying out of nowhere, imma act goofy or not reciprocate like at all ..
