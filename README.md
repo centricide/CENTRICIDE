@@ -22,7 +22,7 @@
 - i may cuddle with my friends but it doesn't *always* necessarily mean that i ship the characters or that i am in the same fandom!
 - ***ALSO*** i don't do rp and i never take that stuff seriously! 
 if you just start roleplaying out of nowhere, imma act goofy or not reciprocate like at all ..
-- **regarding skin copying/taking insp**: its funny when i see people copy or take inspo, i just screenshot yall and make fun of you with my friends lmaoo just ask next time?
+- **regarding skin copying/taking insp**: its funny when i see people copy or take inspo, i just screenshot yall and make fun of you with my friends lmaoo just ask next time? i don't particularly ENJOY all that confrontation nonsense on ponytown so i don't usually bother, its just SO silly.
 ![image](https://78.media.tumblr.com/61faa55fdebb0bf5838b38923e97bbf9/tumblr_ohivxzydc51uerrt0o2_1280.gif)
 
 
