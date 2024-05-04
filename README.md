@@ -22,8 +22,7 @@
 - i may cuddle with my friends but it doesn't *always* necessarily mean that i ship the characters or that i am in the same fandom!
 - ***ALSO*** i don't do rp and i never take that stuff seriously! 
 if you just start roleplaying out of nowhere, imma act goofy or not reciprocate like at all ..
-- **regarding skin copying/taking insp**: imitation is a form of flattery. idc if you copy my skins or takes inspo because this is a silly fun pony game :) if my skins are worth copying then it must mean i'm playing this game right lmaooo
-
+- **regarding skin copying/taking insp**: its funny when i see people copy or take inspo, i just screenshot yall and make fun of you with my friends lmaoo just ask next time?
 ![image](https://78.media.tumblr.com/61faa55fdebb0bf5838b38923e97bbf9/tumblr_ohivxzydc51uerrt0o2_1280.gif)
 
 
