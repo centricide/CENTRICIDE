@@ -3,7 +3,7 @@
 #### STATUS KEY ⭐️
 
 - 🟢 ﹕ walking around / actively chatting
-- 🌙 ﹕ working on skins, might not see ur message for a bit
+- 🌙 ﹕ working on skins, might not see ur message so pls whisper!
 - ⛔️ ﹕ low energy, semi-nonverbal
 - ᶻ 𝗓 𐰁  ﹕ offtab for a moment/checking in and out/studying!
 
