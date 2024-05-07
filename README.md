@@ -5,7 +5,7 @@
 - 🟢 ﹕ walking around / actively chatting
 - 🌙 ﹕ working on skins, might not see ur message so pls whisper!
 - ⛔️ ﹕ low energy, semi-nonverbal
-- ᶻ 𝗓 𐰁  ﹕ offtab for a moment/studying!
+- ᶻ 𝗓 𐰁  ﹕ offtab / studying!
 
 ![image](https://64.media.tumblr.com/1a1cdd125d52d08ee33f2a9106cea126/tumblr_ohkns63pMp1uerrt0o3_540.gif)
 
