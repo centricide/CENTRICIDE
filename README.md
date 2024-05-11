@@ -15,7 +15,7 @@
 - 🚫 I DONT ACCEPT FRIEND REQUESTS ON SAFE SERVER !! 🚫
 
 ### **INT** ++ 
-- Ponies within the same [f](https://rentry.co/thoughtcrimes)andoms / [s](https://pronouns.cc/@nineteeneightyfour)ource as me!! feel free to cuddle/boop/hide with my avi! i'm typically slow with replies, sorry in advance!!
+- Ponies within the same [f](https://rentry.co/thoughtcrimes)andoms / [s](https://pronouns.cc/@nineteeneightyfour)ource as me (except for idv, thin ice)!! feel free to cuddle/boop/hide with my avi! i'm typically slow with replies, sorry in advance!!
 - sorry in advance if i boop / kiss and it's against ur boundaries! i get very happy seeing others with my interests <3
 - if it's urgent please whisper as i might be offtab!! crowns are always welcomed and i typically reply with a heart `<3` in case that makes you uncomfy!
 
