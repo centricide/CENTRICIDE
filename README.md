@@ -11,7 +11,7 @@
 
 ### ***DNI*** ++  
 - basic [c](https://dni-criteria.carrd.co)riteria, the same as always. i am pretty tolerant of a lot of things but if you make me lose my patience or are just that annoying, i won't hesitate to block/hide!
-- **MAJOR NONO's**: sexualizing me or my friends that i sit near, if you are a minor and you're on the 18+ server (hope you get your account banned! /silly), if youre finicky about doubles i don't care just block me.
+- **MAJOR NONO's**: sexualizing me or my friends that i sit near, if you are a minor and you're on the 18+ server (hope you get your account banned! /silly).. please stop sayin u wish my cc's / kins would die, i am manifesting that your pillows are never cold.
 - 🚫 I DONT ACCEPT FRIEND REQUESTS ON SAFE SERVER !! 🚫
 
 ### **INT** ++ 
