@@ -7,7 +7,6 @@
 - 🌙 ﹕ probably eating and just observing! feel free to int but i may reply slowly!!
 - ⛔️ ﹕ low energy, semi-nonverbal, whispers are more preferred
 - ᶻ 𝗓 𐰁  ﹕ offtab / studying! / literally away from keyboard
-- OFFLINE﹕ IWEC, typically hiding because surprise surprise i have anxiety even on a colorful pony game
 
 ![image](https://64.media.tumblr.com/1a1cdd125d52d08ee33f2a9106cea126/tumblr_ohkns63pMp1uerrt0o3_540.gif)
 
