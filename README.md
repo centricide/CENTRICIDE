@@ -24,9 +24,8 @@
 - i may cuddle with my friends but it doesn't *always* necessarily mean that i ship the characters or that i am in the same fandom!
 - ***ALSO*** i don't do rp and i never take that stuff seriously! 
 if you just start roleplaying out of nowhere, imma act goofy or not reciprocate like at all .. `changeling ponies` or anyone who plays some type of character on ponytown are so silly **but** exhausting for me to interact with so fair warning, i may ignore u. 
-- **regarding skin copying/taking insp**: its funny when i see people copy or take inspo, i just screenshot yall and make fun of you with my friends lmaoo just don't do it :D
+- **regarding skin copying/taking insp**: its funny when i see people copy or take inspo, i just screenshot yall and send them to my friends to laugh at you lmaoo just don't do it :)
 
-![image](https://78.media.tumblr.com/61faa55fdebb0bf5838b38923e97bbf9/tumblr_ohivxzydc51uerrt0o2_1280.gif)
 <details>
 <summary>
 Click for blinkie/stamp collection :)
@@ -181,6 +180,9 @@ Click for blinkie/stamp collection :)
 <a href="https://info.flagcounter.com/kaLl"><img src="https://s11.flagcounter.com/count2/kaLl/bg_0E1117/txt_FFFFFF/border_0E1117/columns_3/maxflags_15/viewers_0/labels_0/pageviews_0/flags_0/percent_0/" alt="Flag Counter" border="0"></a>
 
 </details>
+
+![image](https://78.media.tumblr.com/61faa55fdebb0bf5838b38923e97bbf9/tumblr_ohivxzydc51uerrt0o2_1280.gif)
+
 
 <!--
 **usagj/usagj** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
