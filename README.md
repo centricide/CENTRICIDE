@@ -65,6 +65,9 @@
 </div>
 <ul dir="auto" data-sourcepos="29:1-33:0">
 	<li data-sourcepos="29:1-29:131">
+		i'm 24, if that matters. i'm an oldie and it shows through my humor and how i speak. i DO NOT want to interract with minors like, please 😭 but whatever, i can't physically stop you if you decide you wanna chat
+	</li>
+	<li data-sourcepos="29:1-29:131">
 		i may cuddle with my friends but it doesn't
 		<em>
 			 always
@@ -90,6 +93,7 @@
 		 : its funny when i see people copy or take inspo, i just screenshot yall and send them to my friends to laugh at you lmaoo just don't do it :)
 	</li>
 </ul>
+
 
 
 <details>
