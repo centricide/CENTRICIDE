@@ -25,10 +25,10 @@
 </div>
 <ul dir="auto" data-sourcepos="19:1-22:0">
 	<li data-sourcepos="19:1-19:205">
-		basic <a href="https://dni-criteria.carrd.co/" rel="nofollow">c</a>riteria, the same as always. i am pretty tolerant of a lot of things but if you make me lose my patience or are just that annoying, i won't hesitate to block/hide!
+		basic <a href="https://dni-criteria.carrd.co/" rel="nofollow">c</a>riteria, the same as always. i am pretty tolerant of a lot of things but if you make me lose my patience or are just that annoying, i won't hesitate to block/hide! 
 	</li>
 	<li data-sourcepos="20:1-20:260">
-		<strong>MAJOR NONO's</strong>: sexualizing me or my friends that i sit near, if you are a minor and you're on the 18+ server (hope you get your account banned! /silly).. please stop sayin u wish my cc's / kins would die, i am manifesting that your pillows are never cold.
+		<strong>MAJOR NONO's</strong>: sexualizing me or my friends that i sit near, if you are a minor and you're on the 18+ server (hope you get your account banned! /silly).. please stop sayin u wish my cc's / kins would die, i am manifesting that your pillows are humid and musty at night :\
 	</li>
 	<li data-sourcepos="21:1-22:0">
 		<img src="https://static.tumblr.com/rltvkjt/9lnlmr41u/th_k_atencao.gif" alt="image" />
@@ -52,7 +52,7 @@
 		sorry in advance if i boop / kiss and it's against ur boundaries! i get very happy seeing others with my interests &lt;3
 	</li>
 	<li data-sourcepos="26:1-27:0">
-		if it's urgent please whisper as i might be offtab!! crowns are always welcomed and i typically reply with a heart (&lt;3) in case that makes you uncomfy!
+		if it's urgent please whisper as i might be offtab!! crowns are always welcomed! 
 	</li>
 </ul>
 <div dir="auto">
