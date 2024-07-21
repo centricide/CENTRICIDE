@@ -11,7 +11,7 @@
 - 🟢 ﹕ walking around / actively chatting
 - 🌙 ﹕ probably eating and just observing! feel free to int but i may reply slowly!!
 - ⛔️ ﹕ low energy, semi-verbal, whispers are more preferred
-- ᶻ 𝗓 𐰁  ﹕ offtab / studying! / literally away from keyboard
+- ᶻ 𝗓 𐰁  ﹕ offtab / literally away from keyboard
 
 ![image](https://64.media.tumblr.com/1a1cdd125d52d08ee33f2a9106cea126/tumblr_ohkns63pMp1uerrt0o3_540.gif)
 
