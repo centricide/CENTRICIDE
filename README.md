@@ -10,7 +10,7 @@
 
 - 🟢 ﹕ walking around / actively chatting
 - 🌙 ﹕ probably eating and just observing! feel free to int but i may reply slowly!!
-- ⛔️ ﹕ low energy, semi-verbal, whispers are more preferred
+- ⛔️ ﹕ low energy, whispers are more preferred
 - ᶻ 𝗓 𐰁  ﹕ offtab / literally away from keyboard
 
 ![image](https://64.media.tumblr.com/1a1cdd125d52d08ee33f2a9106cea126/tumblr_ohkns63pMp1uerrt0o3_540.gif)
@@ -25,14 +25,14 @@
 </div>
 <ul dir="auto" data-sourcepos="19:1-22:0">
 	<li data-sourcepos="19:1-19:205">
-		basic <a href="https://dni-criteria.carrd.co/" rel="nofollow">c</a>riteria, the same as always. i am pretty tolerant of a lot of things but if you make me lose my patience or are just that annoying, i won't hesitate to block/hide! 
+		basic <a href="https://dni-criteria.carrd.co/" rel="nofollow">c</a>riteria. i'm pretty tolerant of a lot of things but if you make me lose my patience or are just that annoying, i won't hesitate to block/hide! if you pick on me for block/hiding you, i PROMISE you no one really cares
 	</li>
 	<li data-sourcepos="20:1-20:260">
-		<strong>MAJOR NONO's</strong>: sexualizing me or my friends that i sit near, if you are a minor and you're on the 18+ server (hope you get your account banned! /silly).. please stop sayin u wish my cc's / kins would die, i am manifesting that your pillows are humid and musty at night :\
+		<strong>MAJOR NONO's</strong>: sexualizing me or my friends that i sit near; if you are a minor and you're on the 18+ server, like there is a server for you for a reason.. also stop sayin u wish my cc's / kins would die, you will begin to cough in two days
 	</li>
 	<li data-sourcepos="21:1-22:0">
 		<img src="https://static.tumblr.com/rltvkjt/9lnlmr41u/th_k_atencao.gif" alt="image" />
-		 I DONT ACCEPT FRIEND REQUESTS ON SAFE SERVER !!
+		 I DONT ACCEPT FRIEND REQUESTS ON SAFE SERVER !! feel free to add me on 18+ at your own discretion.
 		<img src="https://static.tumblr.com/rltvkjt/9lnlmr41u/th_k_atencao.gif" alt="image" />
 	</li>
 </ul>
@@ -46,13 +46,13 @@
 </div>
 <ul dir="auto" data-sourcepos="24:1-27:0">
 	<li data-sourcepos="24:1-24:249">
-		Ponies within the same <a href="https://rentry.co/thoughtcrimes" rel="nofollow">f</a>andoms / <a href="https://pronouns.cc/@nineteeneightyfour" rel="nofollow">s</a>ource as me (dni idv fandom, yall ugly)! feel free to cuddle/boop/hide with my avi! i'm typically slow with replies, sorry in advance!!
+		Ponies within the same <a href="https://rentry.co/thoughtcrimes" rel="nofollow">f</a>andoms / <a href="https://pronouns.cc/@nineteeneightyfour" rel="nofollow">s</a>ource as me (dni idv fandom, yall annoying) feel free to cuddle/boop/hide/kiss my avi! i'm typically slow with replies, sorry in advance!!
 	</li>
 	<li data-sourcepos="25:1-25:119">
 		sorry in advance if i boop / kiss and it's against ur boundaries! i get very happy seeing others with my interests &lt;3
 	</li>
 	<li data-sourcepos="26:1-27:0">
-		if it's urgent please whisper as i might be offtab!! crowns are always welcomed! 
+		if it's urgent please whisper as i might be offtab!! crowns are always welcomed!
 	</li>
 </ul>
 <div dir="auto">
@@ -65,7 +65,7 @@
 </div>
 <ul dir="auto" data-sourcepos="29:1-33:0">
 	<li data-sourcepos="29:1-29:131">
-		i'm 24, if that matters. i'm an oldie and it shows through my humor and how i speak. i DO NOT want to interract with minors like, please 😭 but whatever, i can't physically stop you if you decide you wanna chat
+		i'm 24 years old, if that matters to you 🤯 i'm an oldie and it shows through my humor and how i speak. i DO NOT want to interract with minors like, please stop talking to me 😭 but whatever, i can't physically stop you if you decide you wanna chat
 	</li>
 	<li data-sourcepos="29:1-29:131">
 		i may cuddle with my friends but it doesn't
