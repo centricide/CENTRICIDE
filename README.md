@@ -17,7 +17,6 @@
 
 <div dir="auto">
 	<h3 dir="auto" data-sourcepos="18:1-18:16">
-		<img src="https://64.media.tumblr.com/d3839ce334943dfb6a96c9be9419842d/tumblr_inline_p7xowxpFoX1rhwzwl_75sq.gifv" alt="image" />
 		<img src="http://i849.photobucket.com/albums/ab51/Ashleigh_Young/th_tmfav212d.gif" alt="image" />
 		<img src="http://i849.photobucket.com/albums/ab51/Ashleigh_Young/th_tmfav212n.gif" alt="image" />
 		<img src="http://i849.photobucket.com/albums/ab51/Ashleigh_Young/th_tmfav212i.gif" alt="image" />
@@ -33,7 +32,6 @@
 </ul>
 <div dir="auto">
 	<h3 dir="auto" data-sourcepos="23:1-23:16">
-		<img src="https://64.media.tumblr.com/74ecf4da31a97c546a47605bd4f8d0a3/tumblr_inline_p7xowv6hU61rhwzwl_75sq.gifv" alt="image" />
 		<img src="http://i849.photobucket.com/albums/ab51/Ashleigh_Young/th_tmfav212i.gif" alt="image" />
 		<img src="http://i849.photobucket.com/albums/ab51/Ashleigh_Young/th_tmfav212n.gif" alt="image" />
 		<img src="http://i849.photobucket.com/albums/ab51/Ashleigh_Young/th_tmfav212t.gif" alt="image" />
@@ -49,7 +47,6 @@
 </ul>
 <div dir="auto">
 	<h3 dir="auto" data-sourcepos="28:1-28:16">
-		<img src="https://64.media.tumblr.com/e98a864bce32154800cdfe64f7a33446/tumblr_inline_p7xowvATjd1rhwzwl_75sq.gifv" alt="image" />
 		<img src="http://i849.photobucket.com/albums/ab51/Ashleigh_Young/th_tmfav212b.gif" alt="image" />
 		<img src="http://i849.photobucket.com/albums/ab51/Ashleigh_Young/th_tmfav212y.gif" alt="image" />
 		<img src="http://i849.photobucket.com/albums/ab51/Ashleigh_Young/th_tmfav212i.gif" alt="image" />
