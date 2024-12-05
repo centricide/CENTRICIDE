@@ -57,23 +57,7 @@
 		i'm 24 years old, if that matters to you 🤯
 	</li>
 	<li data-sourcepos="29:1-29:131">
-		i may cuddle with my friends but it doesn't
-		<em>
-			 always
-		</em>
-		 necessarily mean that i ship the characters!
-	</li>
-	<li data-sourcepos="30:1-31:259">
-		<em>
-			<strong>
-				 ALSO
-			</strong>
-		</em>
-		 i don't do rp and i never take that stuff seriously! if you just start roleplaying out of nowhere, imma act goofy or not reciprocate like at all .. anyone who plays some type of character (such as changelings or smth) on ponytown are so silly
-		<strong>
-			 but
-		</strong>
-		 exhausting for me to interact with so fair warning, i may hide you.
+		i don't roleplay on pt, leave me out of it.
 	</li>
 </ul>
 
