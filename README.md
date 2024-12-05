@@ -90,7 +90,7 @@
 		<strong>
 			 regarding skin copying/taking insp
 		</strong>
-		 : its funny when i see people copy or take inspo, i just screenshot yall and send them to my friends to laugh at you lmaoo just don't do it :)
+		 : you guys go on the "wall of shame" on my personal server where me and my friends make fun of you :)
 	</li>
 </ul>
 
