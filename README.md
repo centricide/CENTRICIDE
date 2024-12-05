@@ -28,12 +28,7 @@
 		no dni, i block/hide freely!
 	</li>
 	<li data-sourcepos="20:1-20:260">
-		<strong>MAJOR NONO's</strong>: sexualizing me or my friends that i sit near.
-	</li>
-	<li data-sourcepos="21:1-22:0">
-		<img src="https://static.tumblr.com/rltvkjt/9lnlmr41u/th_k_atencao.gif" alt="image" />
-		 I DONT ACCEPT FRIEND REQUESTS ON SAFE SERVER !!
-		<img src="https://static.tumblr.com/rltvkjt/9lnlmr41u/th_k_atencao.gif" alt="image" />
+		<strong>MAJOR NONO's</strong>: being overly-sexual towards me or just out of nowhere in the convo uhh
 	</li>
 </ul>
 <div dir="auto">
@@ -46,10 +41,7 @@
 </div>
 <ul dir="auto" data-sourcepos="24:1-27:0">
 	<li data-sourcepos="24:1-24:249">
-		Ponies within the same fandoms / <a href="https://pronouns.cc/@nineteeneightyfour" rel="nofollow">s</a>ource as me (dni idv fandom, yall annoying) feel free to cuddle/boop/hide/kiss my avi! i'm typically slow with replies, sorry in advance!!
-	</li>
-	<li data-sourcepos="25:1-25:119">
-		sorry in advance if i boop / kiss and it's against ur boundaries! i get very happy seeing others with my interests &lt;3
+		ponies within the same fandoms as me (dni idv fandom, yall annoying) feel free to cuddle/boop/hide/kiss my avi! i'm typically slow with replies, sorry in advance!!
 	</li>
 	<li data-sourcepos="26:1-27:0">
 		if it's urgent please whisper as i might be offtab!! crowns are always welcomed!
@@ -65,14 +57,14 @@
 </div>
 <ul dir="auto" data-sourcepos="29:1-33:0">
 	<li data-sourcepos="29:1-29:131">
-		i'm 24 years old, if that matters to you 🤯 i DO NOT want to interract with minors but this is the internet and it's infested with yall 😭 
+		i'm 24 years old, if that matters to you 🤯
 	</li>
 	<li data-sourcepos="29:1-29:131">
 		i may cuddle with my friends but it doesn't
 		<em>
 			 always
 		</em>
-		 necessarily mean that i ship the characters or that i am in the same fandom!
+		 necessarily mean that i ship the characters!
 	</li>
 	<li data-sourcepos="30:1-31:259">
 		<em>
@@ -85,12 +77,6 @@
 			 but
 		</strong>
 		 exhausting for me to interact with so fair warning, i may hide you.
-	</li>
-	<li data-sourcepos="32:1-33:0">
-		<strong>
-			 regarding skin copying/taking insp
-		</strong>
-		 : you guys go on the "wall of shame" on my personal server where me and my friends make fun of you :)
 	</li>
 </ul>
 
