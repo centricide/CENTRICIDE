@@ -32,7 +32,7 @@
 	</li>
 	<li data-sourcepos="21:1-22:0">
 		<img src="https://static.tumblr.com/rltvkjt/9lnlmr41u/th_k_atencao.gif" alt="image" />
-		 I DONT ACCEPT FRIEND REQUESTS ON SAFE SERVER !! feel free to add me on 18+ at your own discretion.
+		 I DONT ACCEPT FRIEND REQUESTS ON SAFE SERVER !!
 		<img src="https://static.tumblr.com/rltvkjt/9lnlmr41u/th_k_atencao.gif" alt="image" />
 	</li>
 </ul>
