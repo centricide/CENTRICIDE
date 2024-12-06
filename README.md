@@ -39,7 +39,7 @@
 </div>
 <ul dir="auto" data-sourcepos="24:1-27:0">
 	<li data-sourcepos="24:1-24:249">
-		ponies within the same fandoms as me (dni idv fandom, yall annoying) feel free to cuddle/boop/hide/kiss my avi! i'm typically slow with replies, sorry in advance!!
+		literally anyone! feel free to cuddle/boop/whatever my avi! i'm rlly slow with typing, sorry in advance!!
 	</li>
 	<li data-sourcepos="26:1-27:0">
 		if it's urgent please whisper as i might be offtab!! crowns are always welcomed!
